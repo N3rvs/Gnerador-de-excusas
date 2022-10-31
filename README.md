@@ -1,1 +1,0 @@
-# Gnerador-de-excusas
